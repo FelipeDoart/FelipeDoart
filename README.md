@@ -15,7 +15,9 @@
    ➤ Lua
 - ⋆ Curiosidade ⋆:
 - > Tenho preferencias a jogos de PC;
-...
+
+
+
 OBRIGADO DOR ACESSAR-ME!
 ░░░░░░░░░░░░░░░░░░░░░░█████████░░░░░░░░░
 ░░███████░░░░░░░░░░███▒▒▒▒▒▒▒▒███░░░░░░░
